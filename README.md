@@ -1,0 +1,5 @@
+## Scanability
+
+## Satisficing
+
+## Muddling through
